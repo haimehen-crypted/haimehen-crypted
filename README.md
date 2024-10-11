@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... undoing unspent/stuck crypto transactions 
 - 🌱 I’m currently learning ...the basics
 - 💞️ I’m looking to collaborate on ... platform construction 
-- 📫 How to reach me ... tellepathy or online 
+- 📫 How to reach me ... PHONE or GITHUB 
 - 😄 Pronouns: ... God
 - ⚡ Fun fact: ... im willing to pay for help!
 
